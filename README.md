@@ -58,6 +58,4 @@ Ils traversèrent sains et saufs. Après vérification, il fut découvert que le
 
 ---
 
-✅ Voilà une version corrigée, plus fluide et cohérente, qui conserve ton souffle narratif et la force symbolique de l’histoire.  
 
-Veux-tu que je prépare maintenant une version orale et poétique, adaptée pour une récitation cérémonielle, avec rythme et répétitions pour captiver un auditoire?
